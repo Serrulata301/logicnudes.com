@@ -1,1 +1,1 @@
-# logicnudes.com
+[logicleaks.com](https://logicleaks.com)
